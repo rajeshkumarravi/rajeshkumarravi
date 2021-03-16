@@ -1,4 +1,4 @@
-I am @rajeshkumarravi. I am a passionate problem solver, engineer and servant leader, and contributes towards development of new ideas, publishes in top-tier journals, and file patent disclosures. He has over 13 patent applications, 3 journal publications, 9 conferences/workshops and numerous invited talks.
+I am @rajeshkumarravi. I am a passionate problem solver, engineer and servant leader, and contribute towards development of new ideas, publish in top-tier journals, and file patent disclosures. I have filed over 13 patent applications, 3 journal publications, 9 conferences/workshops and given numerous invited talks.
 
 I have over 20 years of experience leading development of product architecture and software solutions employing advanced analytics for various industries such as Renewal Energy, Travel, Retail, Consumer Products, Airlines, Government, Health and Life Sciences.
 
